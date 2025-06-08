@@ -1,0 +1,1 @@
+If they go to this site: https://love2videogame.github.io/rickroll/ (Maybe put it in a google site button so it doesnt look like an obvious rickroll) it will pretend to hack them then redirect them to a no ad rickroll vid :)
